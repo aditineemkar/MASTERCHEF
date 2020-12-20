@@ -1,12 +1,19 @@
 160 gm butter
 
 1 egg
+
 1 1/2 cup all purpose flour
+
 1 teaspoon baking soda
+
 1 cup chocolate chips
+
 1 cup sugar
+
 1 teaspoon vanilla extract
+
 3 tablespoon cocoa powder
+
 salt as required
 
 Step 1 Whisk the butter, egg and sugar
